@@ -10,3 +10,4 @@ Attenzione alla piccantezza!
 * Peperoncino a piacere
 * Sale 10g
 * Pepe rosa
+* Prezzemolo
