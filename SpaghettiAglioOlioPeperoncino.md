@@ -8,5 +8,5 @@ Attenzione alla piccantezza!
 * Aglio circa metà
 * Olio EVO
 * Peperoncino a piacere
-* sale 10g
-* pepe rosa
+* Sale 10g
+* Pepe rosa
